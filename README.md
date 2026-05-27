@@ -1,2 +1,2 @@
 # Npsych
-idk im nust hosting my stuff for psychology on here
+idk im just hosting my stuff for psychology on here
